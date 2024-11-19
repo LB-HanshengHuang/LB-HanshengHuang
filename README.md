@@ -1,4 +1,5 @@
 - 👋 Hi, I’m Hansheng Huang
+- Please call my nickname "Zenix", which is easier to be pronounced.
 - I'm from Taiwan, Tainan
 - Have been living in Japan for 7 years
 - Previously worked in car industry (Toyota group), fintech industry (SBI group), and advertisement industry (Appier)
